@@ -1,2 +1,0 @@
-# losmichis
-Los Michis
